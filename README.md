@@ -35,11 +35,13 @@ Embedded Software Developer & Tester Suresh is an Embedded Engineer has & contin
 
 ✉️  You can contact me at [ellurisureshreddy@proton.me](mailto:ellurisureshreddy@proton.me)* 
 
-🧠  I'm learning Autosar Crypto Stack* 
+🧠  Constant learner Automotive Crypto Stack
 
 🤝  I'm open to collaborating on Autosar Classic Adaptive | ISO 21434 | ISO 26262 | FUZZ Testing | Penetration Testing | Cypto Algorithms | HSM | SHE | TLS* 
 
-⚡  Me Friends with Extraterrestrial
+⚡  Me Friends with ET                           
+                               ![Screenshot 2024-12-17 at 15-16-54 E T  the Extra-Terrestrial (1982)](https://github.com/user-attachments/assets/30e14686-c884-445d-8d39-607b819511b5)
+
 
 ### Skills
 
