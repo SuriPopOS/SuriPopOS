@@ -27,13 +27,13 @@ Hi My name is @SuriAncientindia
 
 
 
-Embedded Software Developer & Tester Suresh is an Embedded Engineer has & continues to gaining experience. Passion for learning about COSMOS. Professional Enthusiast in Secured Communication in Automotive Industry.* 
+Embedded Software Developer & Tester Suresh is an Ambitious Engineer who has & continues to gain experience. Passion for learning about COSMOS. Professional Enthusiast in Secured Communication in the Automotive Industry.* 
 
 🌍  I'm based in Stuttgart, DE*
 
 🖥️  See my portfolio at [LinkedIN](http://www.linkedin.com/in/suresh-reddy-elluri-97b754107)* 
 
-✉️  You can contact me at [ellurisureshreddy@proton.me](mailto:ellurisureshreddy@proton.me)* 
+✉️  You can contact me at suresh.elluri06@proton.me 
 
 🧠  Constant learner Automotive Crypto Stack
 
